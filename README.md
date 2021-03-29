@@ -1,2 +1,2 @@
-# royalhighhalo.github.io
+# royalhighhalo.github
 all the halos in royal high
